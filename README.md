@@ -2,4 +2,4 @@
 Pengumpulan Tugas Akhir Praktikum Jaringan Komputer
 
 Afifullah Ajuna Putra (2315061005)
-Link Vidio : https://drive.google.com/file/d/1D8mn-v2_Qc_WeHEi972MOnBXi5e-pprc/view?usp=sharing
+Link Vidio : https://www.youtube.com/watch?v=aZj5YDSHJhY
